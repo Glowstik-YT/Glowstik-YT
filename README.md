@@ -12,7 +12,7 @@ what i do
 achivements?
 ```
 - I made my own coding langauge ig...
-- I reached not only 100 subs on yt but 200!!!!!
+- I uhh also have 800 subs .-.
 - I have also created many [websites](http://glowstik.ml) and apps (all can be found in my repos)
 ```
 
